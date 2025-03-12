@@ -1,3 +1,3 @@
 Sebastian Berry
-Cph-sb468@cphbusiness.dk
+sebastianberry11@gmail.com
 
